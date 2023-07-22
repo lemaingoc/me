@@ -1,2 +1,2 @@
 # me
-Lê Mai Ngọc @lemaingoc @neu
+Lê Mai Ngọc @lemaingoc 
